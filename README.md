@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mericakablitzo
+- 👋 Hi, I’m @mericakablitzo, Call me Blitz because O is silent.
 - 👀 I’m interested in football, development, literature, AI
 - 🌱 I’m currently learning everything i can
 - 💞️ I’m looking to collaborate on ...
