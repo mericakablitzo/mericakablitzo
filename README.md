@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mericakablitzo
+- 👀 I’m interested in football, development, literature, AI
+- 🌱 I’m currently learning everything i can
+- 💞️ I’m looking to collaborate on ...
+- 📫 Not avaiable to contact
+- 😄 Pronouns: he/them
+- ⚡ Fun fact: formerly a sound artist for indie games, making beats and some voice acting.
